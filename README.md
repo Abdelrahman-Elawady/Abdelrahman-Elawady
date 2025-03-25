@@ -10,5 +10,7 @@
 - creative design softwares like Canva 🎨
 
 🌟 Interests: Content writing, tutoring, circuit design, and experimenting with new tech ideas.
+
 🛠️ Always learning, always building, always creating. Let's collaborate and innovate together! 🤝✨
+
 ✔ contact me via: www.linkedin.com/in/abdelrahmanelawady
